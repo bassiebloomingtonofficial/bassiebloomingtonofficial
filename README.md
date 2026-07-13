@@ -16,6 +16,7 @@ Call me crazy, call me delusional if you want, but keep it to yourself. I've got
 - Wanderer doubles and Bassie fictkin doubles strictly HEAVY dni. Nothing personal, It's just my boundaries. I don't usually hide / block people, but I will if you are problematic.
 -15 also heavy dni unless you're friends of a friend or family. Even then, friends of friends iwec as I'll be very distant, given that I am an adult.
 Other than the basic dni as well, feel free to interact with me, c+h is always encouraged even if my skin says I'm not feeling well. I'm friendly, and I always love making friends, though I can be shy !
+Number one Berrybasket / Fruitsbasket / Picnic Fan ! Aka Bassie x Sprout.
 
 - I do have undiagnosed Autism and I have diagnosed ADHD, I will get mood swings, or sometimes go nonverbal. Even then, c+h is encouraged ! <3
 
