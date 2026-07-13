@@ -1,4 +1,7 @@
 # Information About Me !
+
+![MEEE](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f55875a87061441a5a2cd55e05a0d41968d1819d/1000022647.png)
+
 ![THE Bassie Bloomington of Ponytown](https://github.com/wandererswifey/wandererswifey/blob/665b868878e272dffe7f97973b6890df0a84ef07/images%20(2).jfif)
 
 THE Bassie Bloomington of Ponytown ! <3 Number one Berrybasket / Fruitbasket / Picnic Fan ! Aka Bassie x Sprout.
