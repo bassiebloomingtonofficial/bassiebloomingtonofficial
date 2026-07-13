@@ -13,6 +13,8 @@ I am 19, happily married, and I go by she / her / hers !
 - My main fandom is Genshin impact, and I fictkin Bassie from Dandys world ! (No I do NOT support qwel. I still play the game, albeit much less than I used to now, and I don't buy anything that would give qwel money.)
 For ponytown, I usually sit in spawn area as my wanderer skins or bassie skins ! My favorite spot is the cliff above spawn !
 
+![my husband](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3461d5881a025609826293c2d3b7743e4eef118f/1000022177.png)
+
 - I am a nonsharing yumeshipper with Wanderer. Heavy on the nonsharing. I'm what's called a Soulbonded Riako. Meaning I am spiritually bonded with Wanderer, and the love I feel for him feels real.
 Call me crazy, call me delusional if you want, but keep it to yourself. I've gotten enough threats to where it is exhausting to listen to. If you've got a problem with me, block me. It's not that hard.
 
