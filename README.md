@@ -1,7 +1,7 @@
 # Information About Me !
 ![THE Bassie Bloomington of Ponytown](https://github.com/wandererswifey/wandererswifey/blob/665b868878e272dffe7f97973b6890df0a84ef07/images%20(2).jfif)
 
-THE Bassie Bloomington of Ponytown ! <3
+THE Bassie Bloomington of Ponytown ! <3 Number one Berrybasket / Fruitsbasket / Picnic Fan ! Aka Bassie x Sprout.
 
 - Hello ! My name is Haruka. But you can also call me Bassie ! Whichever you like ! <3
 My strawpage shows more in depth information about myself, but here are the basics incase you don't want to read all of it lol.
@@ -16,7 +16,6 @@ Call me crazy, call me delusional if you want, but keep it to yourself. I've got
 - Wanderer doubles and Bassie fictkin doubles strictly HEAVY dni. Nothing personal, It's just my boundaries. I don't usually hide / block people, but I will if you are problematic.
 -15 also heavy dni unless you're friends of a friend or family. Even then, friends of friends iwec as I'll be very distant, given that I am an adult.
 Other than the basic dni as well, feel free to interact with me, c+h is always encouraged even if my skin says I'm not feeling well. I'm friendly, and I always love making friends, though I can be shy !
-Number one Berrybasket / Fruitsbasket / Picnic Fan ! Aka Bassie x Sprout.
 
 - I do have undiagnosed Autism and I have diagnosed ADHD, I will get mood swings, or sometimes go nonverbal. Even then, c+h is encouraged ! <3
 
