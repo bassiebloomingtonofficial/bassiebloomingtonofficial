@@ -1,5 +1,6 @@
 # Information About Me !
 ![THE Bassie Bloomington of Ponytown](https://github.com/wandererswifey/wandererswifey/blob/665b868878e272dffe7f97973b6890df0a84ef07/images%20(2).jfif)
+
 THE Bassie Bloomington of Ponytown ! <3
 
 - Hello ! My name is Haruka. But you can also call me Bassie ! Whichever you like ! <3
