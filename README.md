@@ -27,3 +27,10 @@ Other than the basic dni as well, feel free to interact with me, c+h is always e
 tldr : I'm an adult, married, and a nonsharing wanderer yumeshipper. minors iwec and wanderer doubles + bassie fictkin doubles dni. I sit by spawn. iwec always despite c+h being encouraged !
 
 ![me and my husband trust](https://github.com/wandererswifey/wandererswifey/blob/ef9234d4d0ac8ca7d21f867ce026ad9ef4c1cea8/dkcuboe-b8e8760c-88b2-4744-b267-d070f1595c71.png)
+
+![about me!](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022344.png)
+![my yume](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022333.png)
+![splashart](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022288.png)
+![splashart2](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022291.png)
+
+My yumeship ! <3
