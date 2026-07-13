@@ -1,7 +1,6 @@
 # Information About Me !
+![THE Bassie Bloomington of Ponytown](https://github.com/wandererswifey/wandererswifey/blob/b9ffbd8283c9a11f0a18caeb01b677c8a1f5c2e0/wp16054765.webp)
 Hello ! My name is Haruka. But you can also call me Bassie ! Whichever you like ! <3
-
-THE Bassie Bloomington of Ponytown trust trust !
 
 My strawpage shows more in depth information about myself, but here are the basics incase you don't want to read all of it lol.
 I am 19, happily married, and I go by she / her / hers !
