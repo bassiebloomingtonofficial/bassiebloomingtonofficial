@@ -18,4 +18,4 @@ Other than the basic dni as well, feel free to interact with me, c+h is always e
 I do have undiagnosed Autism and I have diagnosed ADHD, I will get mood swings, or sometimes go nonverbal. Even then, c+h is encouraged ! <3
 
 tldr : I'm an adult, married, and a nonsharing wanderer yumeshipper. minors iwec and wanderer doubles + bassie fictkin doubles dni. I sit by spawn. iwec always despite c+h being encouraged !
-(https://github.com/wandererswifey/wandererswifey/blob/ef9234d4d0ac8ca7d21f867ce026ad9ef4c1cea8/dkcuboe-b8e8760c-88b2-4744-b267-d070f1595c71.png)
+! [me and my husband trust](https://github.com/wandererswifey/wandererswifey/blob/ef9234d4d0ac8ca7d21f867ce026ad9ef4c1cea8/dkcuboe-b8e8760c-88b2-4744-b267-d070f1595c71.png)
