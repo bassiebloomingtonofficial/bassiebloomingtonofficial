@@ -4,7 +4,7 @@
 
 ![THE Bassie Bloomington of Ponytown](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/836ba3009153dc89ade40ff01d1d1fcfbb06ba8e/1000022648.png)
 
-THE Bassie Bloomington of Ponytown ! <3 Number one Berrybasket / Fruitbasket / Picnic Fan ! Aka Bassie x Sprout.
+THE Bassie Bloomington of Ponytown ! <3 Number one CEO of Berrybasket / Fruitbasket / Picnic Fan ! Aka Bassie x Sprout.
 
 - Hello ! My name is Haruka. But you can also call me Bassie ! Whichever you like ! <3
 My strawpage shows more in depth information about myself, but here are the basics incase you don't want to read all of it lol.
