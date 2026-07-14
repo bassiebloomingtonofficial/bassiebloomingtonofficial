@@ -15,14 +15,14 @@ For ponytown, I usually sit in spawn area as my wanderer skins or bassie skins !
 
 ![my husband](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3461d5881a025609826293c2d3b7743e4eef118f/1000022177.png)
 
-- I am a nonsharing yumeshipper with Wanderer. Heavy on the nonsharing. I'm what's called a Soulbonded Riako. Meaning I am spiritually bonded with Wanderer, and the love I feel for him feels real.
-Call me crazy, call me delusional if you want, but keep it to yourself. I've gotten enough threats to where it is exhausting to listen to. If you've got a problem with me, block me. It's not that hard.
+- I am a nonsharing yumeshipper with Wanderer. Heavy on the nonsharing. I'm what's called a Riako. Meaning the love I feel for him feels real.
+Call me crazy, call me delusional if you want, but keep it to yourself. If you've got a problem with me, block me. It's not that hard.
 
 - Wanderer doubles and Bassie fictkin doubles strictly HEAVY dni. Nothing personal, It's just my boundaries. I don't usually hide / block people, but I will if you are problematic.
--15 also heavy dni unless you're friends of a friend or family. Even then, friends of friends iwec as I'll be very distant, given that I am an adult.
+-15 also heavy dni unless you're friends of a family. minors as a whole iwec as I'll be very distant, given that I am an adult.
 Other than the basic dni as well, feel free to interact with me, c+h is always encouraged even if my skin says I'm not feeling well. I'm friendly, and I always love making friends, though I can be shy !
 
-- I do have undiagnosed Autism and ADHD, I will get mood swings, or sometimes go nonverbal. Even then, c+h is encouraged ! <3
+- I do have undiagnosed ADHD, I will get mood swings, or sometimes step away. Even then, c+h is encouraged ! <3
 
 tldr : I'm an adult, married, and a nonsharing wanderer yumeshipper. minors iwec and wanderer doubles + bassie fictkin doubles dni. I sit by spawn. iwec always despite c+h being encouraged !
 
