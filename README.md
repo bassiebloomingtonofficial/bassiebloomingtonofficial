@@ -22,7 +22,7 @@ Call me crazy, call me delusional if you want, but keep it to yourself. If you'v
 -15 also heavy dni unless you're friends of a family. minors as a whole iwec as I'll be very distant, given that I am an adult.
 Other than the basic dni as well, feel free to interact with me, c+h is always encouraged even if my skin says I'm not feeling well. I'm friendly, and I always love making friends, though I can be shy !
 
-- I do have undiagnosed ADHD, I will get mood swings, or sometimes step away. Even then, c+h is encouraged ! <3
+- I do have undiagnosed ADHD and Autism, I will get mood swings, or sometimes step away. Even then, c+h is encouraged ! <3
 
 tldr : I'm an adult, married, and a nonsharing wanderer yumeshipper. minors iwec and wanderer doubles + bassie fictkin doubles dni. I sit by spawn. iwec always despite c+h being encouraged !
 
