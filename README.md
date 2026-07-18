@@ -6,11 +6,11 @@
 
 THE Bassie Bloomington of Ponytown ! <3 Number one CEO of Berrybasket / Fruitbasket / Picnic Fan ! Aka Bassie x Sprout.
 
-- Hello ! My name is Haruka. But you can also call me Bassie ! Whichever you like ! <3
+- Hello ! My name is Haruka. But you can also call me Bassie or Mizi ! Whichever you like ! <3
 My strawpage shows more in depth information about myself, but here are the basics incase you don't want to read all of it lol.
 I am 19, happily married, and I go by she / her / hers !
 
-- My main fandom is Genshin impact, and I fictkin Bassie from Dandys world ! (No I do NOT support qwel. I don't play the game anymore. I just like the characters !)
+- My main fandom is Genshin impact, and I fictkin Bassie from Dandys world as well as Mizi from Alien Stage / Zombie Stage ! (No I do NOT support qwel. I don't play the game anymore. I just like the characters ! And no, I do not fictkin Mizi because of her abuser characteristics. It shows in my strawpage why I do so ! <3 )
 For ponytown, I usually sit in spawn area as my wanderer skins or bassie skins ! My favorite spot is the cliff above spawn !
 
 ![my husband](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3461d5881a025609826293c2d3b7743e4eef118f/1000022177.png)
