@@ -4,7 +4,7 @@
 
 ![THE Bassie Bloomington of Ponytown](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/836ba3009153dc89ade40ff01d1d1fcfbb06ba8e/1000022648.png)
 
-[ To Narlen, my ex friend. I know you're reading this, since I believe you are stalking me. No, I am not copying you. God forbid I get into a POPULAR media, like a POPULAR character for a FRIEND. Please stop assuming I am copying you. I'm not, and never was. ]
+[ To Narlen, my ex friend. I know you're reading this, since I believe you are stalking me. No, I am not copying you. God forbid I get into a POPULAR media and like a POPULAR character for a FRIEND. Please stop assuming I am copying you. I'm not, and never was. ]
 
 -
 -
