@@ -4,6 +4,8 @@
 
 ![THE Bassie Bloomington of Ponytown](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/836ba3009153dc89ade40ff01d1d1fcfbb06ba8e/1000022648.png)
 
+[ To Narlen, my ex friend. I know you're reading this, since I believe you are stalking me. No, I am not copying you. God forbid I get into a POPULAR media, like a POPULAR character for a FRIEND. Please stop assuming I am copying you. I'm not, and never was. ]
+
 THE Bassie Bloomington of Ponytown ! <3 Number one CEO of Berrybasket / Fruitbasket / Picnic Fan ! Aka Bassie x Sprout.
 
 - Hello ! My name is Haruka. But you can also call me Bassie or Mizi ! Whichever you like ! <3
@@ -28,9 +30,3 @@ tldr : I'm an adult, married, and a nonsharing wanderer yumeshipper. minors iwec
 
 ![me and my husband trust](https://github.com/wandererswifey/wandererswifey/blob/ef9234d4d0ac8ca7d21f867ce026ad9ef4c1cea8/dkcuboe-b8e8760c-88b2-4744-b267-d070f1595c71.png)
 
-![about me!](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022344.png)
-![my yume](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022333.png)
-![splashart](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022288.png)
-![splashart2](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ad6c01653485044ff72f3435daca8054381ceecf/1000022291.png)
-
-My yumeship ! <3
