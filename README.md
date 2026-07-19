@@ -6,6 +6,10 @@
 
 [ To Narlen, my ex friend. I know you're reading this, since I believe you are stalking me. No, I am not copying you. God forbid I get into a POPULAR media, like a POPULAR character for a FRIEND. Please stop assuming I am copying you. I'm not, and never was. ]
 
+-
+-
+-
+
 THE Bassie Bloomington of Ponytown ! <3 Number one CEO of Berrybasket / Fruitbasket / Picnic Fan ! Aka Bassie x Sprout.
 
 - Hello ! My name is Haruka. But you can also call me Bassie or Mizi ! Whichever you like ! <3
