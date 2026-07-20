@@ -1,6 +1,6 @@
 # Learn About Me ! <3
 
-![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/cf71a047a99427fd85a9d46840fe5366986cfa73/wanderer-on-high-graphics-mobile-though-v0-o2djd3qyfp5f1.webp)  
+![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/179b5097b1cd6dc0dd94dd7dfacc811c9586fe7c/afe8cd53c1d90f4d6a61e2d1ff918643.jpg) 
 
 ${\textsf{\color{#89CFF0}Howdy, My names Haruka, Bassie, or Mizi.}}$
 
