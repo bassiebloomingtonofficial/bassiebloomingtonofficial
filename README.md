@@ -19,6 +19,7 @@ ${\textsf{\color{#CF9FFF}You're free to talk once or twice, compliment a skin, o
 ${\textsf{\color{#CF9FFF}But I wish to not be friends, as I am an adult. Thank you.}}$
 
 ![miziiii](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/96d0eb48ee6cb162b37f78ff19dd620d7bd7f437/GxjTxnYXQAAE2Wm.png)
+
   ${\textsf{\color{#${\textsf{\color{#6495ED}If you want to be friends, please note I tend to get overwhelmed easily.}}$
 ${\textsf{\color{#${\textsf{\color{#6495ED}If that happens, I'll step away. But you're still free to c+h.}}$
 ${\textsf{\color{#${\textsf{\color{#6495ED}Don't associate me with drama happening with friends. I am not part of it. Don't drag me into it.}}$
