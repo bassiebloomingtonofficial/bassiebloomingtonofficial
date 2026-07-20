@@ -22,8 +22,9 @@ ${\textsf{\color{#CF9FFF}But I wish to not be friends, as I am an adult. Thank y
   ${\textsf{\color{#${\textsf{\color{#6495ED}If you want to be friends, please note I tend to get overwhelmed easily.}}$
 ${\textsf{\color{#${\textsf{\color{#6495ED}If that happens, I'll step away. But you're still free to c+h.}}$
 ${\textsf{\color{#${\textsf{\color{#6495ED}Don't associate me with drama happening with friends. I am not part of it. Don't drag me into it.}}$
-    ${\textsf{\color{#${\textsf{\color{#DC143C}And for Narlen who I believe is stalking me.}}$
+
+  ${\textsf{\color{#${\textsf{\color{#DC143C}And for Narlen who I believe is stalking me.}}$
 ${\textsf{\color{#${\textsf{\color{#DC143C}Please stop. I am not copying you. I never was. God forbid I get into a popular media.}}$
- ${\textsf{\color{#${\textsf{\color{#DC143C}I got into alnst / zmbst for a FRIEND. I am sick of you thinking I am copying you. Leave me and my friends alone.}}$
+${\textsf{\color{#${\textsf{\color{#DC143C}I got into alnst / zmbst for a FRIEND. I am sick of you thinking I am copying you. Leave me and my friends alone.}}$
 
 ![this user is](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/96d0eb48ee6cb162b37f78ff19dd620d7bd7f437/Untitled273_20260720005420.png)
