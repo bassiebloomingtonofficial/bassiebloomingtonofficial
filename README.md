@@ -1,4 +1,4 @@
-# Learn About Me ! <3
+# ${\textsf{\color{#CF9FFF}About Me ! <3}}$
 
 ![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/179b5097b1cd6dc0dd94dd7dfacc811c9586fe7c/afe8cd53c1d90f4d6a61e2d1ff918643.jpg) 
 
