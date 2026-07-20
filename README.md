@@ -24,9 +24,9 @@ ${\textsf{\color{#CF9FFF}But I wish to not be friends, as I am an adult. Thank y
 
 ![miziiii](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/96d0eb48ee6cb162b37f78ff19dd620d7bd7f437/GxjTxnYXQAAE2Wm.png)
 
-${\textsf{\color{#89CFF0}If you want to be friends, please note I tend to get overwhelmed easily.}}$
-${\textsf{\color{#89CFF0}If that happens, I will step away. You're free to sit by me, though.}}$
-${\textsf{\color{#89CFF0}Don't drag me into drama mutual friends of mine get into. I am not part of it.}}$
+${\textsf{\color{#FF00FF}If you want to be friends, please note I tend to get overwhelmed easily.}}$
+${\textsf{\color{#FF00FF}If that happens, I will step away. You're free to sit by me, though.}}$
+${\textsf{\color{#FF00FF}Don't drag me into drama mutual friends of mine get into. I am not part of it.}}$
 
 ${\textsf{\color{#DC143C}And for Narlen who I believe may be stalking me,}}$
 ${\textsf{\color{#DC143C}Leave me alone. I am not copying you, and I never was.}}$
