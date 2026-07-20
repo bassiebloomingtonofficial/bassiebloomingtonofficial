@@ -26,16 +26,16 @@ Other than the basic dni as well, feel free to interact with me, c+h is always e
 
 tldr : I'm an adult, married, and a nonsharing wanderer yumeshipper. minors iwec and wanderer doubles + bassie fictkin doubles dni. I sit by spawn. iwec always despite c+h being encouraged !
 
-![husband](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/aee553667e8a05d9916a2505628f5b48f8c0e62a/official-wanderer-birthday-art-2025-v0-y1pktcp1dpae1.jpg)
 
 # My husband !
+![husband](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/aee553667e8a05d9916a2505628f5b48f8c0e62a/official-wanderer-birthday-art-2025-v0-y1pktcp1dpae1.jpg)
 
-
-![my son](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/e0f34c4fecdd6a0025f51e68b264f1dd686a5444/Durin_Birthday_2026.webp)
 
 # My son !
+![my son](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/e0f34c4fecdd6a0025f51e68b264f1dd686a5444/Durin_Birthday_2026.webp)
 
-
-![my mother](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/e0f34c4fecdd6a0025f51e68b264f1dd686a5444/HCQ1cvLXsAArrNN.jpg)
 
 # My mother !
+![my mother](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/e0f34c4fecdd6a0025f51e68b264f1dd686a5444/HCQ1cvLXsAArrNN.jpg)
+
+![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/19174596e424410e03b8e51ed6facfe14a99bfbb/2d97334e5d9c578d1868ec02a7a58eb8.gif)
