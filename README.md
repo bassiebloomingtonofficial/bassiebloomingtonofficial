@@ -6,8 +6,6 @@ ${\textsf{\color{#89CFF0}Howdy, My names Haruka, Bassie, or Mizi.}}$
 
   ${\textsf{\color{#89CFF0}I'm a 19 year old woman, pan + ace, and married.}}$
 
-![husband](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/4e6a6f7a4f7a848e45c4dde1be3daaae836bf3c1/bb0b03c8f2d8776b8dd1c65ff2a9110b_4751038089710674574.webp)
-
   ${\textsf{\color{#89CFF0}I'm a Nonsharing Riako Yumeshipper for Wanderer and a Durin and Lauma Familial Yume from genshin impact ! Durin nonsharing, Lauma sharing !}}$
 ${\textsf{\color{#89CFF0}Wanderer doubles as well as mizi or bassie fictkins, please dni. Nothing against you. Just my boundaries.}}$
                                     
