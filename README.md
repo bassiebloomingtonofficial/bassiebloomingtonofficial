@@ -28,8 +28,8 @@ ${\textsf{\color{#89CFF0}If you want to be friends, please note I tend to get ov
 ${\textsf{\color{#89CFF0}If that happens, I will step away. You're free to sit by me, though.}}$
 ${\textsf{\color{#89CFF0}Don't drag me into drama mutual friends of mine get into. I am not part of it.}}$
 
-${\textsf{\color{#89CFF0}And for Narlen who I believe may be stalking me,}}$
-${\textsf{\color{#89CFF0}Leave me alone. I am not copying you, and I never was.}}$
-${\textsf{\color{#89CFF0}I got into alnst and zmbst for a friend. I am sick and tired of you thinking I copy you. Leave me and my friends alone.}}$
+${\textsf{\color{#DC143C}And for Narlen who I believe may be stalking me,}}$
+${\textsf{\color{#DC143C}Leave me alone. I am not copying you, and I never was.}}$
+${\textsf{\color{#DC143C}I got into alnst and zmbst for a friend. I am sick and tired of you thinking I copy you. Leave me and my friends alone.}}$
 
 ![this user is](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/96d0eb48ee6cb162b37f78ff19dd620d7bd7f437/Untitled273_20260720005420.png)
