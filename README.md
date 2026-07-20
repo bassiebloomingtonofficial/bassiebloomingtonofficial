@@ -37,5 +37,3 @@ tldr : I'm an adult, married, and a nonsharing wanderer yumeshipper. minors iwec
 
 # My mother !
 ![my mother](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/e0f34c4fecdd6a0025f51e68b264f1dd686a5444/HCQ1cvLXsAArrNN.jpg)
-
-![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/19174596e424410e03b8e51ed6facfe14a99bfbb/2d97334e5d9c578d1868ec02a7a58eb8.gif)
