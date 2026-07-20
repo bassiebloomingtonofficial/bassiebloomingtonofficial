@@ -9,7 +9,7 @@ ${\textsf{\color{#89CFF0}Howdy, My names Haruka, Bassie, or Mizi.}}$
   ${\textsf{\color{#89CFF0}I'm a Nonsharing Riako Yumeshipper for Wanderer and a Durin and Lauma Familial Yume from genshin impact ! Durin nonsharing, Lauma sharing !}}$
 ${\textsf{\color{#89CFF0}Wanderer doubles as well as mizi or bassie fictkins, please dni. Nothing against you. Just my boundaries.}}$
                                     
-![mee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/5284635bd98f9149b2f4d278f0a893df2bd88b6f/zombie-stage-mizi.gif)
+![mee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/bf33af5ca1783c36ef9c4f66eede005a74bc18d0/zombie-stage-zomst.gif)
 
   ${\textsf{\color{#FFB6C1}I fictkin many characters. My main two are Mizi from ALNST/ZMBST and Bassie from Dandys world.}}$
 ${\textsf{\color{#FFB6C1}And before you ask, No I do not support qwel nor play the game anymore. I just like the characters.}}$
