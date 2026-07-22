@@ -26,8 +26,4 @@ ${\textsf{\color{#FF00FF}If you want to be friends, please note I tend to get ov
 ${\textsf{\color{#FF00FF}If that happens, I will step away. You're free to sit by me, though.}}$
 ${\textsf{\color{#FF00FF}Don't drag me into drama mutual friends of mine get into. I am not part of it.}}$
 
-${\textsf{\color{#DC143C}And for Narlen who I believe may be stalking me,}}$
-${\textsf{\color{#DC143C}Leave me alone. I am not copying you, and I never was.}}$
-${\textsf{\color{#DC143C}I got into alnst and zmbst for a friend. I will keep this message up until you confirm you will stop stalking me. this is not to cause drama, but a plead instead. please leave me and my friends alone.}}$
-
 ![this user is](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/96d0eb48ee6cb162b37f78ff19dd620d7bd7f437/Untitled273_20260720005420.png)
