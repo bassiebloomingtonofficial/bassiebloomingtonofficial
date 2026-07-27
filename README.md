@@ -23,8 +23,8 @@ ${\textsf{\color{#CF9FFF}But I wish to not be friends, as I am an adult. Thank y
 
 ![miziiii](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ce513a9446f0a925f72c48f033bb111db440651a/dl5l5qg-49bf7e3d-c118-47b5-bf71-f3ecd1324014.jpg)
 
-${\textsf{\color{#FF00FF}If you want to be friends, please note I tend to get overwhelmed easily.}}$
-${\textsf{\color{#FF00FF}If that happens, I will step away. You're free to sit by me, though.}}$
+${\textsf{\color{#FF00FF}If you want to be friends, please note I tend to get overwhelmed easily. To which then I'll step away, you're still free to cuddle.}}$
+${\textsf{\color{#FF00FF}I apologize in advance if you seek comfort from me. I'm the quiet type. I have no idea how to properly comfort someone. Though, I'll happily sit with you if it helps at all!}}$
 ${\textsf{\color{#FF00FF}Don't drag me into drama mutual friends of mine get into. I am not part of it.}}$
 
 ![this user is](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ce513a9446f0a925f72c48f033bb111db440651a/dkcuboe-b8e8760c-88b2-4744-b267-d070f1595c71.png)
