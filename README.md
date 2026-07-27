@@ -1,6 +1,7 @@
 # ${\textsf{\color{#CF9FFF}About Me ! <3}}$
 
 ![MEEE](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/079ac117fc9ae93ebbb1aabb5fb30d589831eddb/Screenshot%202026-07-27%20020726.png)
+IT ME!! TY TITLE-TOWN!!!! <3
 
 ![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/179b5097b1cd6dc0dd94dd7dfacc811c9586fe7c/afe8cd53c1d90f4d6a61e2d1ff918643.jpg) 
 
