@@ -17,8 +17,6 @@ ${\textsf{\color{#89CFF0}Wanderer doubles as well as mizi or bassie fictkins, pl
   ${\textsf{\color{#FFB6C1}I fictkin many characters. My main two are Mizi from ALNST/ZMBST and Bassie from Dandys world.}}$
 ${\textsf{\color{#FFB6C1}And before you ask, No I do not support qwel nor play the game anymore. I just like the characters.}}$
 
-![eeeeerrr](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/4d2b92a6eca2af205269fc25074a9acf6da55494/0800ff943132e315fc86e2c369014693.jpg)
-
   ${\textsf{\color{#CF9FFF}I ask no minors under 15 interact with me constantly.}}$
 ${\textsf{\color{#CF9FFF}You're free to talk once or twice, compliment a skin, or ask a question regarding my github.}}$
 ${\textsf{\color{#CF9FFF}But I wish to not be friends, as I am an adult. Thank you.}}$
