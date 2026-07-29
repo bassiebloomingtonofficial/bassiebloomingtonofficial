@@ -1,7 +1,8 @@
 # ${\textsf{\color{#CF9FFF}About Me ! <3}}$
 
 ![MEEE](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/079ac117fc9ae93ebbb1aabb5fb30d589831eddb/Screenshot%202026-07-27%20020726.png)
-IT ME!! TY TITLE-TOWN!!!! <3
+![eee yay](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/efe78607fbe0cf8cedb31ec33dda16ff399d696e/Screenshot%202026-07-28%20195159.png)
+IT ME!! TY TITLE-TOWN AND PT-CONTRIBUTORS!!!! <3
 
 ![YES YES HUSBAND](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1c0f36bd3f56924a5a1017b25cf60471b2691404/Screenshot%202026-07-28%20053825.png)
 YES YES IM HIS WIFE!!! TY PT-HALL-OF-MEDIA
