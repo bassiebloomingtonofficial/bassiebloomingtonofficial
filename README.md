@@ -16,7 +16,7 @@ ${\textsf{\color{#89CFF0}Howdy, My names Haruka or Bassie.}}$
   ${\textsf{\color{#89CFF0}I'm a Nonsharing Riako Yumeshipper for Wanderer and a Durin and Lauma Familial Yume from genshin impact ! Familals sharing  !}}$
 ${\textsf{\color{#89CFF0}Wanderer doubles as well as bassie fictkins, please dni. Nothing against you. Just my boundaries.}}$
                                     
-![mee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/079ac117fc9ae93ebbb1aabb5fb30d589831eddb/2d97334e5d9c578d1868ec02a7a58eb8.gif)
+![mee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/7b4595ea02854c4226098ee26416b1b1c8df0569/0c253e73ace8a41929096ec0d92ea1c5.jpg)
 
   ${\textsf{\color{#FFB6C1}I fictkin many characters. My main is Bassie from Dandys world.}}$
 ${\textsf{\color{#FFB6C1}And before you ask, No I do not support qwel nor play the game anymore. I just like the characters.}}$
