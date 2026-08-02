@@ -13,8 +13,8 @@ ${\textsf{\color{#89CFF0}Howdy, My names Haruka or Bassie.}}$
 
   ${\textsf{\color{#89CFF0}I'm a 19 year old woman, pan + ace, and married.}}$
 
-  ${\textsf{\color{#89CFF0}I'm a Nonsharing Riako Yumeshipper for Wanderer and a Durin and Lauma Familial Yume from genshin impact ! Familals sharing  !}}$
-${\textsf{\color{#89CFF0}Wanderer doubles as well as bassie fictkins, please dni. Nothing against you. Just my boundaries.}}$
+  ${\textsf{\color{#89CFF0}I'm a Nonsharing Riako Yumeshipper for Wanderer and a Durin and Lauma Familial Yume from genshin impact ! Familals sharing I'm also a nonsharing Nikolai Gogol Yume !}}$
+${\textsf{\color{#89CFF0}Wanderer and Nikolai doubles as well as bassie fictkins, please dni. Nothing against you. Just my boundaries.}}$
                                     
 ![mee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/7b4595ea02854c4226098ee26416b1b1c8df0569/0c253e73ace8a41929096ec0d92ea1c5.jpg)
 
