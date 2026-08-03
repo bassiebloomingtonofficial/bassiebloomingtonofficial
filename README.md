@@ -35,7 +35,7 @@
 </p>
 
 <p align="center">
- ${\textsf{\color{#FFC0CB}I fictkin other characters, but Bassie is my main. I ship Berrybasket ! aka Sprout x Bassie. No, I DON'T support Qw*l}}$
+ ${\textsf{\color{#FFC0CB}I fictkin other characters, but Bassie is my main.}}$
 </p>
 <p align="center">
  ${\textsf{\color{#FFC0CB}I ship Berrybasket ! aka Sprout x Bassie. No, I DON'T support Qw*l}}$
