@@ -75,7 +75,4 @@
  ${\textsf{\color{#DC143C}"Well, I think you're kind if that's worth anything."}}$
 </p>
 
-
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/12955197_11f99.gif"/>
-</p>
+![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
