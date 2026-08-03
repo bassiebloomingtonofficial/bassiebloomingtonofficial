@@ -10,7 +10,7 @@ YES YES IM HIS WIFE!!! TY PT-HALL-OF-MEDIA
 
 ![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/179b5097b1cd6dc0dd94dd7dfacc811c9586fe7c/afe8cd53c1d90f4d6a61e2d1ff918643.jpg) 
 
-<p align="center">
+<p align="right">
  ${\textsf{\color{#89CFF0}Howdy, My names Haruka or Bassie.}}$
 </p>
 
