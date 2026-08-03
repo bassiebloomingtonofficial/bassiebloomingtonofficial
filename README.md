@@ -40,6 +40,9 @@
 <p align="center">
  ${\textsf{\color{#FFC0CB}I ship Berrybasket ! aka Sprout x Bassie. No, I DON'T support Qw*l}}$
 </p>
+<p align="center">
+ ${\textsf{\color{#FFC0CB}No, I DON'T support Qw*l}}$
+</p>
 
 ![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
 
@@ -51,10 +54,10 @@
 </p>
 
 <p align="center">
- ${\textsf{\color{#E0BFB8}Wanderer specifically is special. I'm a soulbonded riako.}}$
+ ${\textsf{\color{#E0BFB8}Wanderer is special. I'm a soulbonded riako.}}$
 </p>
 <p align="center">
- ${\textsf{\color{#E0BFB8}Which means I am spiritually bonded, and the love feels real! }}$
+ ${\textsf{\color{#E0BFB8}Which means I am spiritually bonded + love feels real! }}$
 </p>
 
 <p align="center">
@@ -62,7 +65,7 @@
 </p>
 
 <p align="center">
- ${\textsf{\color{#C1E1C1}I ask no minors under 15 int with me, unless you're my family.}}$
+ ${\textsf{\color{#C1E1C1}I ask no minors under 15 int with me, unless family.}}$
 </p>
 <p align="center">
  ${\textsf{\color{#C1E1C1}I am an adult, this is my boundry.}}$
