@@ -20,8 +20,9 @@
 </p>
 
 <p align="center">
-![mereete](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/acda788e51c22775cc6c6367a03a016e.jpg)
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/acda788e51c22775cc6c6367a03a016e.jpg"/>
 </p>
+
 
 <p align="center">
  ${\textsf{\color{#FFC0CB}I am a Bassie Bloomington Fictkin! Bassie yumes iwec, and Bassie fictkins please dni!}}$
@@ -42,9 +43,8 @@
 </p>
 
 <p align="center">
-![meeeere](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/6997239ad2cbdffdbe2bc9ed66666552.jpg)
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/6997239ad2cbdffdbe2bc9ed66666552.jpg"/>
 </p>
-
 
 <p align="center">
  ${\textsf{\color{#C1E1C1}I ask no minors under 15 int with me, unless you're my family obviously. I am an adult, this is my boundry.}}$
@@ -55,7 +55,7 @@
 </p>
 
 <p align="center">
-![meeee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/wanderer-on-high-graphics-mobile-though-v0-o2djd3qyfp5f1.webp)
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/wanderer-on-high-graphics-mobile-though-v0-o2djd3qyfp5f1.webp"/>
 </p>
 
 
@@ -80,5 +80,5 @@
 
 
 <p align="center">
-![meeetgffhfde](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/12955197_11f99.gif)
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/12955197_11f99.gif"/>
 </p>
