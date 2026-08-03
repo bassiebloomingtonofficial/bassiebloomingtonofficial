@@ -68,11 +68,11 @@
 
 
 <p align="center">
- ${\textsf{\color{#7F00FF}"I hope I'm kind like you.."}}$
+ ${\textsf{\color{#CF9FFF}"I hope I'm kind like you.."}}$
 </p>
 
 <p align="center">
- ${\textsf{\color{#DC143C}"Well, I think you're kind if that's worth anything."}}$
+ ${\textsf{\color{#F88379}"Well, I think you're kind if that's worth anything."}}$
 </p>
 
 ![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
