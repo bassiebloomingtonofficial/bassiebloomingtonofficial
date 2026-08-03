@@ -38,7 +38,7 @@
  ${\textsf{\color{#FFC0CB}I fictkin other characters, but Bassie is my main.}}$
 </p>
 <p align="center">
- ${\textsf{\color{#FFC0CB}I ship Berrybasket ! aka Sprout x Bassie. No, I DON'T support Qw*l}}$
+ ${\textsf{\color{#FFC0CB}I ship Berrybasket ! aka Sprout x Bassie.}}$
 </p>
 <p align="center">
  ${\textsf{\color{#FFC0CB}No, I DON'T support Qw*l}}$
@@ -57,7 +57,7 @@
  ${\textsf{\color{#E0BFB8}Wanderer is special. I'm a soulbonded riako.}}$
 </p>
 <p align="center">
- ${\textsf{\color{#E0BFB8}Which means I am spiritually bonded + love feels real! }}$
+ ${\textsf{\color{#E0BFB8}It means I'm spiritually bonded + the love feels real! }}$
 </p>
 
 <p align="center">
