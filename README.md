@@ -41,6 +41,9 @@
  ${\textsf{\color{#FFC0CB}I ship Berrybasket ! aka Sprout x Bassie.}}$
 </p>
 <p align="center">
+ ${\textsf{\color{#FFC0CB}I also hc Gourdy as their son !}}$
+</p>
+<p align="center">
  ${\textsf{\color{#FFC0CB}No, I DON'T support Qw*l}}$
 </p>
 
