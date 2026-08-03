@@ -3,8 +3,9 @@
 ![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
 
 <p align="center">
-![mee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/dl5l5qg-49bf7e3d-c118-47b5-bf71-f3ecd1324014.jpg)
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/dl5l5qg-49bf7e3d-c118-47b5-bf71-f3ecd1324014.jpg"/>
 </p>
+
 
 ![eee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-08-02%20213346.png)
 ![eeee](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20195159.png)
@@ -65,6 +66,8 @@
 <p align="center">
  ${\textsf{\color{#9FE2BF}I'm also not good at comfort, and I'm terrible at reading signs. Please tell me if I mess up.}}$
 </p>
+
+
 
 
 <p align="center">
