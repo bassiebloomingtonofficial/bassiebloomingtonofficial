@@ -13,7 +13,7 @@
 ![YAY](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20053825.png)
 
 <p align="center">
- ${\textsf{\color{#FFB6C1}Howdy, My names Haruka or Bassie. Friends can call me Haru as well!}}$
+ ${\textsf{\color{#FFB6C1}Howdy, My names Haruka or Bassie!}}$
 </p>
 <p align="center">
  ${\textsf{\color{#FFB6C1}I'm 19, she / her. Pan + ace.}}$
