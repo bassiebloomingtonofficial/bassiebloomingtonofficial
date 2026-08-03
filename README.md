@@ -43,7 +43,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/6997239ad2cbdffdbe2bc9ed66666552.jpg"/>
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/c022410cd7b0f7d35e2a81d0ba3663c8f3a3f26f/hq720.jpg"/>
 </p>
 
 <p align="center">
@@ -63,7 +63,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/wanderer-on-high-graphics-mobile-though-v0-o2djd3qyfp5f1.webp"/>
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/c022410cd7b0f7d35e2a81d0ba3663c8f3a3f26f/67b7a-17152513054151-1920.avif"/>
 </p>
 
 
