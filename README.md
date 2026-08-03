@@ -55,11 +55,6 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/wanderer-on-high-graphics-mobile-though-v0-o2djd3qyfp5f1.webp"/>
-</p>
-
-
-<p align="center">
  ${\textsf{\color{#9FE2BF}I get overwhelmed easily. Please be patient with me if I need to step away!}}$
 </p>
 
@@ -67,7 +62,9 @@
  ${\textsf{\color{#9FE2BF}I'm also not good at comfort, and I'm terrible at reading signs. Please tell me if I mess up.}}$
 </p>
 
-
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0cfa32b526e92ba3e7e4dfcf1e3eb9fd610addd9/wanderer-on-high-graphics-mobile-though-v0-o2djd3qyfp5f1.webp"/>
+</p>
 
 
 <p align="center">
