@@ -7,29 +7,6 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-08-02%20213346.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20195159.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-27%20020726.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20053825.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/fa5c73ac99eedfc97c7827b73a977c5613d81647/Screenshot%202026-08-04%20210159.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3c061c9af3c6e0fdab226a1e06e647f1fc12b207/Screenshot%202026-08-09%20061323.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3c061c9af3c6e0fdab226a1e06e647f1fc12b207/Screenshot%202026-08-09%20061530.png"/>
-</p>
-TY TO @ponytownyumeshippers, @ponychievements, @charactersofpt, @pt-contributers, @pt-hall-of-media, @title-town, and @pt-walk-of-fame FOR THE TITLES!!
-
-<p align="center">
  ${\textsf{\color{#FFB6C1}Howdy, My names Haruka or Bassie!}}$
 </p>
 <p align="center">
@@ -124,5 +101,30 @@ TY TO @ponytownyumeshippers, @ponychievements, @charactersofpt, @pt-contributers
 <p align="center">
  ${\textsf{\color{#F88379}"Well, I think you're kind if that's worth anything."}}$
 </p>
+
+![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
+
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-08-02%20213346.png"/>
+</p>
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20195159.png"/>
+</p>
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-27%20020726.png"/>
+</p>
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20053825.png"/>
+</p>
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/fa5c73ac99eedfc97c7827b73a977c5613d81647/Screenshot%202026-08-04%20210159.png"/>
+</p>
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3c061c9af3c6e0fdab226a1e06e647f1fc12b207/Screenshot%202026-08-09%20061323.png"/>
+</p>
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3c061c9af3c6e0fdab226a1e06e647f1fc12b207/Screenshot%202026-08-09%20061530.png"/>
+</p>
+TY TO @ponytownyumeshippers, @ponychievements, @charactersofpt, @pt-contributers, @pt-hall-of-media, @title-town, and @pt-walk-of-fame FOR THE TITLES!!
 
 ![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
