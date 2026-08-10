@@ -88,6 +88,12 @@
 <p align="center">
  ${\textsf{\color{#9FE2BF}I'm terrible at reading signs. Please tell me if I mess up.}}$
 </p>
+<p align="center">
+ ${\textsf{\color{#9FE2BF}I also tend to overthink A LOT.}}$
+</p>
+<p align="center">
+ ${\textsf{\color{#9FE2BF}All I ask for is your patience and kindness.}}$
+</p>
 
 <p align="center">
   <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/707f05be91b3e32b188752fcd3f91a81baf065a0/Untitled291_20260804184722.png"/>
