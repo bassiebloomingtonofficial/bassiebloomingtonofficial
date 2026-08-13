@@ -7,6 +7,10 @@
 </p>
 
 <p align="center">
+ ${\textsf{\color{#E6E6FA}100+ Bassie skin owner! Russian + Deer Bassie Truther!}}$
+</p>
+
+<p align="center">
  ${\textsf{\color{#FFB6C1}Howdy, My names Haruka or Bassie!}}$
 </p>
 <p align="center">
