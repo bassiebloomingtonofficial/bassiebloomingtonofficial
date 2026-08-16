@@ -1,140 +1,74 @@
-# ${\textsf{\color{#FFB6C1}About Me ! <3}}$
+![me](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ccfd2abc455dc19aecd3264102340c3f9a2d4e69/tumblr_9b2c787fb5bcff59e8bc2e27479f3dbc_85491ff7_1280.png)
+![flowers](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f9dc3c346d69f41ec038d1ee4f79b8d5d8ae586c/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
 
-![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
-
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/dl5l5qg-49bf7e3d-c118-47b5-bf71-f3ecd1324014.jpg"/>
-</p>
-
-<p align="center">
- ${\textsf{\color{#E6E6FA}100+ Bassie skin owner! Russian + Deer Bassie Truther!}}$
-</p>
-
-<p align="center">
- ${\textsf{\color{#FFB6C1}Howdy, My names Haruka or Bassie!}}$
+<p align="left">
+ ${\textsf{\color{#E6E6FA}The moon will sing a song about me..}}$
 </p>
 <p align="center">
- ${\textsf{\color{#FFB6C1}I'm 19, she / her. Pan + ace.}}$
+ ${\textsf{\color{#CF9FFF}I love you like the sun!}}$
+</p>
+<p align="right">
+ ${\textsf{\color{#915F6D}I shine only with the light you gave me<3}}$
 </p>
 <p align="center">
- ${\textsf{\color{#FFB6C1}AuDHD + possible ocd.!}}$
+  <img width="300" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_4f4e9fcd9615e03830e7291b7e12490f_84a109ee_1280.png">
 </p>
 
 <p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/c022410cd7b0f7d35e2a81d0ba3663c8f3a3f26f/hq720.jpg"/>
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_a1c38aa2b1be844b815d1f9c71449c64_c63999f5_1280.png"/>
 </p>
 
-
-<p align="center">
- ${\textsf{\color{#FFC0CB}I am a Bassie Bloomington Fictkin!}}$
+<p align="right">
+ ${\textsf{\color{#F8C8DC}Bassie / Haru / Haruka}}$
 </p>
-<p align="center">
- ${\textsf{\color{#FFC0CB}Bassie yumes iwec, and Bassie fictkins please dni!}}$
-</p>
-
-<p align="center">
- ${\textsf{\color{#FFC0CB}I fictkin other characters, but Bassie is my main.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#FFC0CB}I ship Berrybasket ! aka Sprout x Bassie.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#FFC0CB}I also hc Gourdy as their son !}}$
-</p>
-<p align="center">
- ${\textsf{\color{#FFC0CB}No, I DON'T support Qw*l}}$
-</p>
-
-![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
-
-<p align="center">
- ${\textsf{\color{#E0BFB8}I'm a Nonsharing Wanderer and Nikolai yumeshipper.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#E0BFB8}Doubles heavy dni. All my other yumes are sharing ! }}$
+<p align="right">
+ ${\textsf{\color{#C1E1C1}19 . Pan . Ace}}$
 </p>
 
 <p align="center">
- ${\textsf{\color{#E0BFB8}Wanderer is special. I'm a soulbonded riako.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#E0BFB8}It means I'm spiritually bonded + the love feels real! }}$
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_937e29b3166fdcdfb7a12b2add4bc2e7_e19d7b1c_100.gif.webp"/>
 </p>
 
 <p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/c022410cd7b0f7d35e2a81d0ba3663c8f3a3f26f/67b7a-17152513054151-1920.avif"/>
+ ${\textsf{\color{#F8C8DC}AuDHD . Anxiety . Ocd}}$
+</p>
+<p align="center">
+ ${\textsf{\color{#C1E1C1}Heavy Overthinker. -15 dni. Graphic Designer Student}}$
 </p>
 
 <p align="center">
- ${\textsf{\color{#C1E1C1}I ask no minors under 15 int with me, unless family.}}$
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_1c09d4e1b55e6cdb4515f44a18732411_1e588962_100.gif.webp"/>
 </p>
-<p align="center">
- ${\textsf{\color{#C1E1C1}I am an adult, this is my boundry.}}$
+
+<p align="left">
+ ${\textsf{\color{#F8C8DC}Nonsharing . Riako . Wanderer + Nikolai Yume}}$
+</p>
+<p align="left">
+ ${\textsf{\color{#C1E1C1}Bassie Bloomington Fictkin . Doubles Dni}}$
+</p>
+<p align="left">
+ ${\textsf{\color{#F8C8DC}Sharing Sprout Yume . Sharing Familal Gourdy Yume}}$
 </p>
 
 <p align="center">
- ${\textsf{\color{#C1E1C1}Soulbasket, Berrycookie, Fruitcake, please dni.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#C1E1C1}ALL Wanderer ships and Fyolai heavy dni! }}$
-</p>
-
-<p align="center">
- ${\textsf{\color{#9FE2BF}I get overwhelmed easily.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#9FE2BF}Please be patient with me if I need to step away!}}$
-</p>
-
-<p align="center">
- ${\textsf{\color{#9FE2BF}I'm also not good at comfort}}$
-</p>
-<p align="center">
- ${\textsf{\color{#9FE2BF}I'm terrible at reading signs. Please tell me if I mess up.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#9FE2BF}I also tend to overthink A LOT.}}$
-</p>
-<p align="center">
- ${\textsf{\color{#9FE2BF}All I ask for is your patience and kindness.}}$
-</p>
-
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/0d85ec438a4f8f56c87864f4a5a85c5cdd206610/Untitled300_20260813112402.png"/>
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_a1c38aa2b1be844b815d1f9c71449c64_c63999f5_1280.png"/>
 </p>
 
 
-<p align="center">
- ${\textsf{\color{#CF9FFF}"I hope I'm kind like you.."}}$
-</p>
+<details>
+<summary>TITLES</summary>
+<img src="Screenshot 2026-08-02 213346.png"500">
+<img src="Screenshot 2026-07-28 195159.png"500">
+<img src="Screenshot 2026-08-09 061323.png"500">
+<img src="Screenshot 2026-07-27 020726.png"500">
+<img src="Screenshot 2026-08-09 061530.png"500">
+<img src="Screenshot 2026-08-04 210159.png"500">
+<img src="Screenshot 2026-07-28 053825.png"500">
+</details>
 
 <p align="center">
- ${\textsf{\color{#F88379}"Well, I think you're kind if that's worth anything."}}$
+  <img width="500" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ccfd2abc455dc19aecd3264102340c3f9a2d4e69/tumblr_7f3edb100f23e4c35b6fe050c2dbaa38_491d1f93_1280.gif.webp">
 </p>
 
-![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
-
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-08-02%20213346.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20195159.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-27%20020726.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/Screenshot%202026-07-28%20053825.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/fa5c73ac99eedfc97c7827b73a977c5613d81647/Screenshot%202026-08-04%20210159.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3c061c9af3c6e0fdab226a1e06e647f1fc12b207/Screenshot%202026-08-09%20061323.png"/>
-</p>
-<p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/3c061c9af3c6e0fdab226a1e06e647f1fc12b207/Screenshot%202026-08-09%20061530.png"/>
-</p>
-TY TO @ponytownyumeshippers, @ponychievements, @charactersofpt, @pt-contributers, @pt-hall-of-media, @title-town, and @pt-walk-of-fame FOR THE TITLES!!
-
-![prettybow](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/866dcd70141c35e04f71151bd56918f5501f2b78/image03.gif)
+![yayy](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1f4937ba4241b2a4b569df4706aff6bc04eb4ca5/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
+![omg](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1f4937ba4241b2a4b569df4706aff6bc04eb4ca5/tumblr_30a2f2f214456a934661303c00287522_8ee3215f_1280.png)
