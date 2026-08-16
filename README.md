@@ -2,13 +2,13 @@
 ![flowers](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f9dc3c346d69f41ec038d1ee4f79b8d5d8ae586c/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
 
 <p align="left">
- ${\textsf{\color{#E6E6FA}The moon will sing a song about me..}}$
+ ${\textsf{\color{#E6E6FA}You're my sugar after dinner . .}}$
 </p>
 <p align="center">
- ${\textsf{\color{#CF9FFF}I love you like the sun!}}$
+ ${\textsf{\color{#CF9FFF}My number one bread winner . .}}$
 </p>
 <p align="right">
- ${\textsf{\color{#915F6D}I shine only with the light you gave me<3}}$
+ ${\textsf{\color{#915F6D}Ain't nobody else like you . .}}$
 </p>
 <p align="center">
   <img width="300" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_4f4e9fcd9615e03830e7291b7e12490f_84a109ee_1280.png">
