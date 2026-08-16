@@ -8,7 +8,7 @@
  ${\textsf{\color{#CF9FFF}If I could tell her how she's everything to me..}}$
 </p>
 <p align="right">
- ${\textsf{\color{#915F6D}If I could tell her..}}$
+ ${\textsf{\color{#915F6D}I don't know how I would even start..}}$
 </p>
 <p align="center">
   <img width="300" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_4f4e9fcd9615e03830e7291b7e12490f_84a109ee_1280.png">
