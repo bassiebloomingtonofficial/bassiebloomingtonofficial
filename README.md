@@ -2,13 +2,13 @@
 ![flowers](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f9dc3c346d69f41ec038d1ee4f79b8d5d8ae586c/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
 
 <p align="left">
- ${\textsf{\color{#E6E6FA}"If I could tell her, tell her everything I see.."}}$
+ ${\textsf{\color{#E6E6FA}"𝐼𝒻 𝐼 𝒸𝑜𝓊𝓁𝒹 𝓉𝑒𝓁𝓁 𝒽𝑒𝓇, 𝓉𝑒𝓁𝓁 𝒽𝑒𝓇 𝑒𝓋𝑒𝓇𝓎𝓉𝒽𝒾𝓃𝑔 𝐼 𝓈𝑒𝑒.."}}$
 </p>
 <p align="center">
- ${\textsf{\color{#CF9FFF}"If I could tell her how she's everything to me.."}}$
+ ${\textsf{\color{#CF9FFF}"𝐼𝒻 𝐼 𝒸𝑜𝓊𝓁𝒹 𝓉𝑒𝓁𝓁 𝒽𝑒𝓇 𝒽𝑜𝓌 𝓈𝒽𝑒'𝓈 𝑒𝓋𝑒𝓇𝓎𝓉𝒽𝒾𝓃𝑔 𝓉𝑜 𝓂𝑒.."}}$
 </p>
 <p align="right">
- ${\textsf{\color{#915F6D}"I don't know how I would even start.."}}$
+ ${\textsf{\color{#915F6D}"𝐼 𝒹𝑜𝓃'𝓉 𝓀𝓃𝑜𝓌 𝒽𝑜𝓌 𝐼 𝓌𝑜𝓊𝓁𝒹 𝑒𝓋𝑒𝓃 𝓈𝓉𝒶𝓇𝓉.."}}$
 </p>
 <p align="center">
   <img width="300" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_4f4e9fcd9615e03830e7291b7e12490f_84a109ee_1280.png">
@@ -19,10 +19,10 @@
 </p>
 
 <p align="left">
- ${\textsf{\color{#F8C8DC}Bassie / Haru / Haruka}}$
+ ${\textsf{\color{#F8C8DC}Bαʂʂιҽ / Hαɾυ / Hαɾυƙα}}$
 </p>
 <p align="left">
- ${\textsf{\color{#C1E1C1}19 . Pan . Ace}}$
+ ${\textsf{\color{#C1E1C1}19 . Pαɳ . Aƈҽ}}$
 </p>
 
 <p align="center">
@@ -30,10 +30,10 @@
 </p>
 
 <p align="center">
- ${\textsf{\color{#F8C8DC}AuDHD . Anxiety . Ocd}}$
+ ${\textsf{\color{#F8C8DC}AυDHD . Aɳxιҽƚყ . Oƈԃ}}$
 </p>
 <p align="center">
- ${\textsf{\color{#C1E1C1}Heavy Overthinker. -15 dni unless family. Graphic Designer Student}}$
+ ${\textsf{\color{#C1E1C1}Hҽαʋყ Oʋҽɾƚԋιɳƙҽɾ. -15 ԃɳι υɳʅҽʂʂ ϝαɱιʅყ. Gɾαρԋιƈ Dҽʂιɠɳҽɾ Sƚυԃҽɳƚ}}$
 </p>
 
 <p align="center">
@@ -41,13 +41,13 @@
 </p>
 
 <p align="right">
- ${\textsf{\color{#F8C8DC}Nonsharing . Riako . Wanderer + Nikolai Yume}}$
+ ${\textsf{\color{#F8C8DC}Nσɳʂԋαɾιɳɠ . Rιαƙσ . Wαɳԃҽɾҽɾ + Nιƙσʅαι Yυɱҽ}}$
 </p>
 <p align="right">
- ${\textsf{\color{#C1E1C1}Bassie Bloomington Fictkin . Doubles Dni}}$
+ ${\textsf{\color{#C1E1C1}Bαʂʂιҽ Bʅσσɱιɳɠƚσɳ Fιƈƚƙιɳ . DσυႦʅҽʂ Dɳι}}$
 </p>
 <p align="right">
- ${\textsf{\color{#F8C8DC}Sharing Sprout Yume . Sharing Familal Gourdy Yume}}$
+ ${\textsf{\color{#F8C8DC}Sԋαɾιɳɠ Sρɾσυƚ Yυɱҽ . Sԋαɾιɳɠ Fαɱιʅαʅ Gσυɾԃყ Yυɱҽ}}$
 </p>
 
 <p align="center">
