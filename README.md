@@ -18,10 +18,10 @@
   <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_a1c38aa2b1be844b815d1f9c71449c64_c63999f5_1280.png"/>
 </p>
 
-<p align="right">
+<p align="center">
  ${\textsf{\color{#F8C8DC}Bassie / Haru / Haruka}}$
 </p>
-<p align="right">
+<p align="center">
  ${\textsf{\color{#C1E1C1}19 . Pan . Ace}}$
 </p>
 
@@ -29,10 +29,10 @@
   <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_937e29b3166fdcdfb7a12b2add4bc2e7_e19d7b1c_100.gif.webp"/>
 </p>
 
-<p align="center">
+<p align="left">
  ${\textsf{\color{#F8C8DC}AuDHD . Anxiety . Ocd}}$
 </p>
-<p align="center">
+<p align="left">
  ${\textsf{\color{#C1E1C1}Heavy Overthinker. -15 dni. Graphic Designer Student}}$
 </p>
 
@@ -40,13 +40,13 @@
   <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_1c09d4e1b55e6cdb4515f44a18732411_1e588962_100.gif.webp"/>
 </p>
 
-<p align="left">
+<p align="right">
  ${\textsf{\color{#F8C8DC}Nonsharing . Riako . Wanderer + Nikolai Yume}}$
 </p>
-<p align="left">
+<p align="right">
  ${\textsf{\color{#C1E1C1}Bassie Bloomington Fictkin . Doubles Dni}}$
 </p>
-<p align="left">
+<p align="right">
  ${\textsf{\color{#F8C8DC}Sharing Sprout Yume . Sharing Familal Gourdy Yume}}$
 </p>
 
