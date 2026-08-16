@@ -33,7 +33,7 @@
  ${\textsf{\color{#F8C8DC}AuDHD . Anxiety . Ocd}}$
 </p>
 <p align="center">
- ${\textsf{\color{#C1E1C1}Heavy Overthinker. -15 dni. Graphic Designer Student}}$
+ ${\textsf{\color{#C1E1C1}Heavy Overthinker. -15 dni unless family. Graphic Designer Student}}$
 </p>
 
 <p align="center">
