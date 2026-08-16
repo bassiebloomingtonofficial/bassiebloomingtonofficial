@@ -2,13 +2,13 @@
 ![flowers](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f9dc3c346d69f41ec038d1ee4f79b8d5d8ae586c/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
 
 <p align="left">
- ${\textsf{\color{#E6E6FA}You're my sugar after dinner . .}}$
+ ${\textsf{\color{#E6E6FA}If I could tell her, tell her everything I see..}}$
 </p>
 <p align="center">
- ${\textsf{\color{#CF9FFF}My number one bread winner . .}}$
+ ${\textsf{\color{#CF9FFF}If I could tell her how she's everything to me..}}$
 </p>
 <p align="right">
- ${\textsf{\color{#915F6D}Ain't nobody else like you . .}}$
+ ${\textsf{\color{#915F6D}If I could tell her..}}$
 </p>
 <p align="center">
   <img width="300" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_4f4e9fcd9615e03830e7291b7e12490f_84a109ee_1280.png">
