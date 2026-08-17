@@ -63,7 +63,7 @@
 </p>
 
 <p align="center">
-  <img src="<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7B4BD&center=true&vCenter=true&width=435&lines=Is+one+of+my+flowers+wilted..%3F;You're+my+favorite+Cookie..;I'm+just+doing+my+part..!" alt="Typing SVG"</a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7B4BD&center=true&vCenter=true&width=435&lines=Is+one+of+my+flowers+wilted..%3F;You're+my+favorite+Cookie..;I'm+just+doing+my+part..!" alt="Typing SVG"</a>
 </p>
 
 <p align="center">
