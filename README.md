@@ -66,7 +66,13 @@
  ${\textsf{\color{#7F00FF}BEFORE YOU INT!!}}$
 </p>
 <p align="center">
- ${\textsf{\color{#7F00FF}Just know I overthink A LOT. I hesitate far too much. Please be patient with me}}$
+ ${\textsf{\color{#7F00FF}Just know I overthink A LOT. I hesitate far too much for my own good.}}$
+</p>
+<p align="center">
+ ${\textsf{\color{#7F00FF}If someone moves away from me without saying anything, or goes dry. .}}$
+</p>
+<p align="center">
+ ${\textsf{\color{#7F00FF}I will immediately assume I've done something wrong. Please be patient with me!}}$
 </p>
 
 <p align="center">
