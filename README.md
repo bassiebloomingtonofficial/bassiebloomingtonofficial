@@ -59,7 +59,15 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_a1c38aa2b1be844b815d1f9c71449c64_c63999f5_1280.png"/>
+  <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fbassiebloomingtonofficial%2Fbassiebloomingtonofficial&label=gardeners&labelColor=%23c1e1c1&countColor=%23d9e3f0"/>
+</p>
+
+<p align="center">
+  <img src="<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7B4BD&center=true&vCenter=true&width=435&lines=Is+one+of+my+flowers+wilted..%3F;You're+my+favorite+Cookie..;I'm+just+doing+my+part..!" alt="Typing SVG"</a>
+</p>
+
+<p align="center">
+  <img src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_a1c38aa2b1be844b815d1f9c71449c64_c63999f5_1280.png"
 </p>
 
 
