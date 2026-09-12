@@ -3,9 +3,6 @@
 <p align="center">
  ${\textsf{\color{#7F00FF}"BҽɾɾყႦαʂƙҽƚʂ number 1 CEO"}}$
 </p>
-<p align="center">
- ${\textsf{\color{#7F00FF}"100+ Bαʂʂιҽ ʂƙιɳ σɯɳҽɾ"}}$
-</p>
 
 ![flowers](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f9dc3c346d69f41ec038d1ee4f79b8d5d8ae586c/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
 
