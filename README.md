@@ -1,22 +1,23 @@
 ![me](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ccfd2abc455dc19aecd3264102340c3f9a2d4e69/tumblr_9b2c787fb5bcff59e8bc2e27479f3dbc_85491ff7_1280.png)
 
 <p align="center">
- ${\textsf{\color{#7F00FF}"BҽɾɾყႦαʂƙҽƚʂ number 1 CEO"}}$
+ ${\textsf{\color{#7F00FF}"BҽɾɾყႦαʂƙҽƚʂ and Flutterberrys number 1 CEO"}}$
 </p>
 
 ![flowers](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f9dc3c346d69f41ec038d1ee4f79b8d5d8ae586c/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
 
 <p align="left">
- ${\textsf{\color{#E6E6FA}"𝐼𝒻 𝐼 𝒸𝑜𝓊𝓁𝒹 𝓉𝑒𝓁𝓁 𝒽𝑒𝓇, 𝓉𝑒𝓁𝓁 𝒽𝑒𝓇 𝑒𝓋𝑒𝓇𝓎𝓉𝒽𝒾𝓃𝑔 𝐼 𝓈𝑒𝑒.."}}$
+ ${\textsf{\color{#E6E6FA}"You two mean the world to me."}}$
 </p>
 <p align="center">
- ${\textsf{\color{#CF9FFF}"𝐼𝒻 𝐼 𝒸𝑜𝓊𝓁𝒹 𝓉𝑒𝓁𝓁 𝒽𝑒𝓇 𝒽𝑜𝓌 𝓈𝒽𝑒'𝓈 𝑒𝓋𝑒𝓇𝓎𝓉𝒽𝒾𝓃𝑔 𝓉𝑜 𝓂𝑒.."}}$
+ ${\textsf{\color{#CF9FFF}"Don't ever forget that."}}$
 </p>
 <p align="right">
- ${\textsf{\color{#915F6D}"𝐼 𝒹𝑜𝓃'𝓉 𝓀𝓃𝑜𝓌 𝒽𝑜𝓌 𝐼 𝓌𝑜𝓊𝓁𝒹 𝑒𝓋𝑒𝓃 𝓈𝓉𝒶𝓇𝓉.."}}$
+ ${\textsf{\color{#915F6D}"I love you both platonically. <3"}}$
 </p>
+
 <p align="center">
-  <img width="300" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/829a957b55754e9536f6a2f9d6e38a673a2ff070/tumblr_4f4e9fcd9615e03830e7291b7e12490f_84a109ee_1280.png">
+  <img width="300" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/8328cdc7163adfdcefc0a6390f96f55136d8e73f/mooncookie-renders-v0-o74e5tb3nnbg1.webp">
 </p>
 
 <p align="center">
@@ -27,7 +28,7 @@
  ${\textsf{\color{#F8C8DC}Bαʂʂιҽ / Hαɾυ / Hαɾυƙα}}$
 </p>
 <p align="left">
- ${\textsf{\color{#C1E1C1}20 . Pαɳromantic . Demisexual}}$
+ ${\textsf{\color{#C1E1C1}20 . Aroace .}}$
 </p>
 
 <p align="center">
@@ -77,7 +78,7 @@
 </p>
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7B4BD&center=true&vCenter=true&width=435&lines=Is+one+of+my+flowers+wilted..%3F;You're+my+favorite+Cookie..;I'm+just+doing+my+part..!" alt="Typing SVG"</a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7B4BD&center=true&vCenter=true&width=435&lines=Is+one+of+my+flowers+wilted..%3F;You're+my+favorite+cookie+and+moon..;I'm+just+doing+my+part..!" alt="Typing SVG"</a>
 </p>
 
 <p align="center">
