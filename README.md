@@ -25,7 +25,7 @@
 </p>
 
 <p align="left">
- ${\textsf{\color{#F8C8DC}Bαʂʂιҽ / Hαɾυ / Hαɾυƙα}}$
+ ${\textsf{\color{#F8C8DC}Haru . Bassie . Flutter . Mangle .}}$
 </p>
 <p align="left">
  ${\textsf{\color{#C1E1C1}20 . Aroace .}}$
