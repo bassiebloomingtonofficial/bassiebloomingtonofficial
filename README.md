@@ -1,13 +1,13 @@
 ![me](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/ccfd2abc455dc19aecd3264102340c3f9a2d4e69/tumblr_9b2c787fb5bcff59e8bc2e27479f3dbc_85491ff7_1280.png)
 
 <p align="center">
- ${\textsf{\color{#7F00FF}"BҽɾɾყႦαʂƙҽƚʂ and Flutterberrys number 1 CEO"}}$
+ ${\textsf{\color{#F8C8DC}"Berrybaskets number 1 ceo..!!"}}$
 </p>
 <p align="center">
- ${\textsf{\color{#7F00FF}"Depending on my mood, I'm either quiet, or mute altogether.."}}$
+ ${\textsf{\color{#F8C8DC}"Bassie Bloomington alter..!"}}$
 </p>
 <p align="center">
- ${\textsf{\color{#7F00FF}"I tend to overthink, please be patient with me"}}$
+ ${\textsf{\color{#F8C8DC}"I tend to overthink, please be patient with me.. :>"}}$
 </p>
 
 ![flowers](https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/f9dc3c346d69f41ec038d1ee4f79b8d5d8ae586c/tumblr_397e6a7b548b93e82792c99ffb20743d_62a71927_1280.gif)
@@ -42,10 +42,10 @@
 </p>
 
 <p align="center">
- ${\textsf{\color{#F8C8DC}AυDHD . Aɳxιҽƚყ . Oƈԃ}}$
+ ${\textsf{\color{#F8C8DC}AυDHD . Aɳxιҽƚყ . Oƈd . DID . Potential Dyslexia}}$
 </p>
 <p align="center">
- ${\textsf{\color{#C1E1C1}Hҽαʋყ Oʋҽɾƚԋιɳƙҽɾ. -15 ԃɳι υɳʅҽʂʂ ϝαɱιʅყ. Gɾαρԋιƈ Dҽʂιɠɳҽɾ Sƚυԃҽɳƚ}}$
+ ${\textsf{\color{#C1E1C1}Big overthinker.. sometimes I shut down.. Pls be patient :<}}$
 </p>
 
 <p align="center">
@@ -53,13 +53,13 @@
 </p>
 
 <p align="right">
- ${\textsf{\color{#F8C8DC}Nσɳʂԋαɾιɳɠ . Rιαƙσ . Wαɳԃҽɾҽɾ + Nιƙσʅαι Yυɱҽ}}$
+ ${\textsf{\color{#F8C8DC}Sharing Sprout Seedly Yumeshipper..!!}}$
 </p>
 <p align="right">
- ${\textsf{\color{#C1E1C1}Bαʂʂιҽ Bʅσσɱιɳɠƚσɳ Fιƈƚƙιɳ . DσυႦʅҽʂ DNIUF}}$
+ ${\textsf{\color{#C1E1C1}Bassie Alter..! Yumes interact with caution.. :>}}$
 </p>
 <p align="right">
- ${\textsf{\color{#F8C8DC}Sԋαɾιɳɠ Sρɾσυƚ Yυɱҽ . Sԋαɾιɳɠ Fαɱιʅαʅ Gσυɾԃყ Yυɱҽ}}$
+ ${\textsf{\color{#F8C8DC}Family Gourdy yume..!! No.. It's family..He's my son!! <3}}$
 </p>
 
 <p align="center">
@@ -67,16 +67,16 @@
 </p>
 
 <p align="center">
- ${\textsf{\color{#7F00FF}BEFORE YOU INT!!}}$
+ ${\textsf{\color{#7F00FF}Please read before you interact with me..!}}$
 </p>
 <p align="center">
- ${\textsf{\color{#7F00FF}Just know I overthink A LOT. I hesitate far too much for my own good.}}$
+ ${\textsf{\color{#7F00FF}I hesitate..overthink...and I tend to be quiet..}}$
 </p>
 <p align="center">
- ${\textsf{\color{#7F00FF}If someone moves away from me without saying anything, or goes dry. .}}$
+ ${\textsf{\color{#7F00FF}If someone moves away from me without saying anything, or goes dry..}}$
 </p>
 <p align="center">
- ${\textsf{\color{#7F00FF}I will immediately assume I've done something wrong. Please be patient with me!}}$
+ ${\textsf{\color{#7F00FF}I will think I hurt you..If I did..pls tell me!!!}}$
 </p>
 
 <p align="center">
