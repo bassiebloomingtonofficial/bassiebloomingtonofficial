@@ -31,10 +31,10 @@
 </p>
 
 <p align="left">
- ${\textsf{\color{#F8C8DC}Haru . Bassie . Varesa . Mangle .}}$
+ ${\textsf{\color{#F8C8DC}Bassie!!}}$
 </p>
 <p align="left">
- ${\textsf{\color{#C1E1C1}20 . Aroace .}}$
+ ${\textsf{\color{#C1E1C1}20.. Aroace and Panromantic..!}}$
 </p>
 
 <p align="center">
@@ -42,7 +42,7 @@
 </p>
 
 <p align="center">
- ${\textsf{\color{#F8C8DC}AυDHD . Aɳxιҽƚყ . Oƈd . DID . Potential Dyslexia}}$
+ ${\textsf{\color{#F8C8DC}Audhd.. OCD .. Anxiety..Potential Dyslexia}}$
 </p>
 <p align="center">
  ${\textsf{\color{#C1E1C1}Big overthinker.. sometimes I shut down.. Pls be patient :<}}$
