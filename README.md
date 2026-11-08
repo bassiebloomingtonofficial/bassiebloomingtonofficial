@@ -59,7 +59,7 @@ Pls pls pls under 15 dont int!
 </p>
 
 <p align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF9FFF&width=435&lines=Is+one+of+my+flowers+wilting..?;Just+doing+my+part..!;You+are+my+favorite+chef..;I+wish+to+be+kind+like+you..;" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF9FFF&width=435&lines=Is+one+of+my+flowers+wilting..?;Just+doing+my+part..!;You+are+my+favorite+toons..;I+wish+to+be+kind+like+you..;" /></a>
 </p>
 
 <p align="center">
@@ -67,9 +67,9 @@ Pls pls pls under 15 dont int!
 </p>
 
 <p align="center">
-  <img width="400" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/2a5ecfc6772589bd7b985beece438d70011d6500/1c5107c6e8cd39a5ec6ed2bcc7720d1c.jpg">
+  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1fa53d4e4ccf1e123ed12b77df0808ca1aa9f44e/images%20(12).jfif">
 </p>
 
 <p align="center">
-  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/2a5ecfc6772589bd7b985beece438d70011d6500/Untitled291_20260802232649.png">
+  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1fa53d4e4ccf1e123ed12b77df0808ca1aa9f44e/fb6a56cb0c024325a1ce194efd595445.jpg">
 </p>
