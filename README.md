@@ -1,5 +1,9 @@
 <p align="center">
-  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/2a5ecfc6772589bd7b985beece438d70011d6500/dl5l5qg-49bf7e3d-c118-47b5-bf71-f3ecd1324014.jpg">
+  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1943181ae8bd95c6603c96f26bd9a2ea66bd89c1/tumblr_968707b35e3d63c8d4aa73c9b331176d_69a02418_400.png">
+</p>
+
+<p align="center">
+  <img width="500" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1fa53d4e4ccf1e123ed12b77df0808ca1aa9f44e/images%20(12).jfif">
 </p>
 
 <p align="center"table>
@@ -59,7 +63,7 @@ Pls pls pls under 15 dont int!
 </p>
 
 <p align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF9FFF&width=435&lines=Is+one+of+my+flowers+wilting..?;Just+doing+my+part..!;You+are+my+favorite+moon..;I+wish+to+be+kind+like+you..;" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF9FFF&width=435&lines=Is+one+of+my+flowers+wilting..?;Just+doing+my+part..!;You+are+my+favorite+moon..;Sorry+didnt+mean+to+raise+my+voice..;" /></a>
 </p>
 
 <p align="center">
@@ -67,5 +71,5 @@ Pls pls pls under 15 dont int!
 </p>
 
 <p align="center">
-  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1fa53d4e4ccf1e123ed12b77df0808ca1aa9f44e/images%20(12).jfif">
+  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1943181ae8bd95c6603c96f26bd9a2ea66bd89c1/tumblr_66255e9dc15cdc508550efd39ee0baa3_96310fab_100.webp">
 </p>
