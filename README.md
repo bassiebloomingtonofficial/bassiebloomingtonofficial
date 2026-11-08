@@ -59,7 +59,7 @@ Pls pls pls under 15 dont int!
 </p>
 
 <p align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF9FFF&width=435&lines=Is+one+of+my+flowers+wilting..?;Just+doing+my+part..!;You+are+my+favorite+toons..;I+wish+to+be+kind+like+you..;" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=CF9FFF&width=435&lines=Is+one+of+my+flowers+wilting..?;Just+doing+my+part..!;You+are+my+favorite+moon..;I+wish+to+be+kind+like+you..;" /></a>
 </p>
 
 <p align="center">
