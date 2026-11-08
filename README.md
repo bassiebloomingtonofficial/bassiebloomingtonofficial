@@ -69,7 +69,3 @@ Pls pls pls under 15 dont int!
 <p align="center">
   <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1fa53d4e4ccf1e123ed12b77df0808ca1aa9f44e/images%20(12).jfif">
 </p>
-
-<p align="center">
-  <img width="700" src="https://github.com/bassiebloomingtonofficial/bassiebloomingtonofficial/blob/1fa53d4e4ccf1e123ed12b77df0808ca1aa9f44e/fb6a56cb0c024325a1ce194efd595445.jpg">
-</p>
